@@ -2,4 +2,4 @@
 
 i study in Netologia
 
-i stude in netologia
+12.05.2023
